@@ -7,4 +7,4 @@ I add multiple-choice and also you can add image,video etc.
 
 You can do whatever you want with this update.
 
-<a href="https://hizliresim.com/vJpPQO"><img src="https://i.hizliresim.com/vJpPQO.jpg"></a>
+<a href="https://hizliresim.com/XEX6vR"><img src="https://i.hizliresim.com/XEX6vR.png"></a>
